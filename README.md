@@ -1,1 +1,1 @@
-idk how to code
+idk what i'm doing
